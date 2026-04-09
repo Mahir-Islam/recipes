@@ -7,6 +7,7 @@
 * Salt
 * Walnuts (optional)
 * Honey (optional)
+* Basil (optional)
 
 Remove pit from avocado and mash the flesh.
 Add the lemon juice to soften it, and add a pinch of salt.
