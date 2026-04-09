@@ -17,3 +17,6 @@ a mortar and add, as well as adding a teaspoon of honey. If
 you want it smooth, blend the walnuts instead of grinding.
 You can substitute walnuts for peanuts (more traditional) or
 almonds.
+
+
+throw one avocado in the bin
